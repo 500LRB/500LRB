@@ -2,7 +2,7 @@
 
 i like to make random projects and do silly stuff
 
-i im also pretty bad at programming but we dont talk about that
+im also pretty bad at programming but we dont talk about that
 
 ## ways you can contact me 📫
 you may contact me using discord 
